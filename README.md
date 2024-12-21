@@ -1,1 +1,1 @@
-![Brown Gradient Legal Services Day Social Media Graphic (1)](https://github.com/user-attachments/assets/016464e5-ca5b-4931-821b-4e7eeeaeec35)
+ ![advocate](https://github.com/user-attachments/assets/40f60e3f-90c9-4743-a7e0-115b7b5cf225)
